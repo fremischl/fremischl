@@ -32,7 +32,7 @@ We are not good at interacting first so if you want to talk feel free to whisper
 
 ###
 
-HH/HB .ᐟ lionfish shippers (thin ice) .ᐟ **people who *think* they are the n1 freminet fan** .ᐟ whitewashers *(Even Sumeru + Natlan)* .ᐟ if you think Arlecchino isn't an abuser .ᐟ ALSNT men ponys/fans (Ivan and till are thin ice) .ᐟ Robinhill .ᐟ **if you infantalize or baby Freminet** .ᐟ  *if you call Freminet Fremi/Fremmy* .ᐟ people who call Wanderer Scaramouche .ᐟ if you make jokes about Baizhus chronic illness .ᐟ Dottore haters + people who genuinely think he experimented on Collei .ᐟ Freminet yumes of ANY type .ᐟ doubles for our nonsharing/selective sharing f/os .ᐟ if you think Calne Ca is a Miku .ᐟ *if you believe systems can exist without trauma AKA endogenic willowgenic nontraumagenic ect.*
+HH/HB .ᐟ lionfish shippers (thin ice) .ᐟ **people who *think* they are the n1 freminet fan** .ᐟ whitewashers *(Even Sumeru + Natlan)* .ᐟ if you think Arlecchino isn't an abuser .ᐟ ALSNT men ponys/fans (Ivan and till are thin ice) .ᐟ Robinhill .ᐟ **if you infantalize or baby Freminet** .ᐟ  *if you call Freminet Fremi/Fremmy* (unless talking about kid Freminet) .ᐟ people who call Wanderer Scaramouche .ᐟ if you make jokes about Baizhus chronic illness .ᐟ Dottore haters + people who genuinely think he experimented on Collei .ᐟ Freminet yumes of ANY type .ᐟ doubles for our nonsharing/selective sharing f/os .ᐟ if you think Calne Ca is a Miku .ᐟ *if you believe systems can exist without trauma AKA endogenic willowgenic nontraumagenic ect.*
 
 ###
 
